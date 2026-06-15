@@ -1,5 +1,5 @@
 site_name: True Education Wiki
-
+docs_dir: .
 theme:
   name: material
 
