@@ -1,0 +1,136 @@
+True Education, original name 참교유 (chamgyoyu?), also known as Get Schooled is a Korean YLAB webtoon and the 6th Blue String webtoon. The story is written by Yongtaek Chae and illustrated by Garam Han. It is published by YLAB.
+
+## synopsis
+"Hwajin Na’s teaching techniques are pretty violent for someone who works in the Ministry of Education. That being said, when punishments don't seem to work on even the worst of school bullies, there is no better man for the job. Sometimes you can’t get a good education until those bullies are taught a lesson."
+
+## main characters
+
+- Hwajin Na
+- Hanlim Lim
+- Kang Seok Choi
+- Gayoon Choi
+- Gu Sera
+- Hyun Daniel
+
+## side characters
+- Junbin Lee
+- Jo Gyu-Cheol
+- Jiyoongyeol
+- Taeyang Kim
+- Ji Tae-seok
+- Kyungmin Kim
+- Park Dae-Seok
+- Kwangpil Ryu
+- Junhyung Ryu
+- Hakjae Kim
+- Byungsoo Park
+- Hyungjoo Kim
+- Hoseong Lee
+- Hongki Cho
+- Kwon-Hyung Jan
+- Sangwook Jan
+- Seonyeong Jeong
+- Young-soo Go
+- Sohyung Kim
+- Sang-yeol Cheon
+- Hyunwoong Choi
+- Kwansik Kim
+- Hyunsuk Kang
+- Yoo-yong Lee
+- Hyeoncheol Jeon
+- Sehun Park
+- Jiwoong Min
+- Duyong
+- Miyang
+- Magyeom
+- Dong-soo Oh
+- Sun-tong Shim
+- Suyeon Kang
+- Jayeon Kanh
+- Eunha Park
+- Sanghee Yang
+- Somi Shin
+- Nayoung Seo
+- Chyle
+- Minso Go
+- Dongcheol Go
+- Mrs. Yoo
+- Seoyeon Won
+- Jincheon Lee
+- Sangwook Lee
+- Seonghal Hong
+- Wonhong Kim 
+- Taesoo Moon
+- Sanggil Han
+- Sangheon Kim
+- Youjeong Oh
+- Yunjung Oh
+- Hyangmi Yo
+- Seolyong Park
+- Youngchool Ko
+- Hyeseung Son
+- Manchun Koo
+- Choi Jisun
+- Jinju Park
+- Woojin Lee
+- Hyeyeon Kim
+- Hyungjoo Kim
+- Hoseong Lee
+- Hongki Cho
+- Kwon Hyuk Jang
+- Jonghyuk Lee
+- Taecheon
+- Kim Dae-yu
+- Seongja Kim
+- Sohyun Park
+- Joohee Lee
+- Joo HyukLee
+- Hakbong
+- Eunjin Kim
+- Min YuJeong
+- Park Yikyung
+- Jinwook Kim
+- Philip Chung
+- Chiho Lee
+- Jongsoo Shin
+- Jung Hyun Min
+- Minhye Seo
+- Soochan Lee
+- Heechang Choi
+- Hyuntae Seo
+- Soohyun Park
+- Kwon Heeso
+- Sorin Sim
+- Woochan Kim
+- Jaeguk Jang
+- Eunkyung
+- taebong
+- Soo Young Cho
+- Lee Cheolyong
+- Lee Seon
+- Yoo Changjin
+- Mihyun Kim
+- Wang So Yu
+- Hyunjong Lee
+- Seonmyong Ahn
+- Jongtaek Yoo
+- Kiryong Kim
+- Lee Sanghuk
+-  Kim Dalyoung
+- Park Ma-ri
+- Seo Changho
+- Lee Janghyeop
+- Youngshin Kim
+- Yunjoo Lee
+- Taeseon Kim
+- Ok Seoyeong
+- Yuni Kim
+- Dabin Lee
+- Hyeran Jang
+- Kangjoo Lee
+- Youngjun Ok
+- Park Dongwon
+- Hanseol Song
+- Jisun Park
+- Kang Changseong
+- SeongHwan Lee
